@@ -1,16 +1,14 @@
-### Hi there 👋
+### oi galeris, sejam bem vindos
 
-<!--
-**gabi0002/gabi0002** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- me chamo gabi
+- tenho  1️⃣5️⃣ anos
+- pretendo cursar agronomia ou engenharia 🪴
+- trabalho em uma empresa agoindustrial da minha cidade em meio perìodo 🌱
+- estou no primeiro ano do E.M 📚
+- e estou namorando 💟
 
-Here are some ideas to get you started:
+### voce pode entrar em contato cmg
+- gabriela.evangelista.silva@escola.pr.gov.br
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+![](https://media.tenor.com/e9AA08LMg8cAAAAC/anime-blush.gif)
