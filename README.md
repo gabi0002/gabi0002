@@ -3,7 +3,7 @@
 - me chamo gabi
 - tenho  1️⃣5️⃣ anos
 - pretendo cursar agronomia ou engenharia 🪴
-- trabalho em uma das empresas agoindustriais da minha cidade em meio perìodo 🌱
+- trabalho em uma das empresas agoindustriais da minha cidade 🌱
 - estou no primeiro ano do E.M 📚
 - e estou namorando 💟
 
