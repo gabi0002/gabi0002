@@ -11,7 +11,7 @@
 - gabriela.evangelista.silva@escola.pr.gov.br
 
 
-![](https://media.tenor.com/e9AA08LMg8cAAAAC/anime-blush.gif)
+
 
 ![](https://media.tenor.com/GZHf6gWuy5UAAAAC/nezuko-tanjiro.gif)
 
